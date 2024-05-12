@@ -1,1 +1,1 @@
-# auto-test-lab2
+Bezverkhyi Mykola
